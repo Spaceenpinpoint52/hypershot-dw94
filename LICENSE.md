@@ -1,4 +1,4 @@
-#  
+#  Experience hypershot like never before with hypershot Script no-ban, the #1 Script. Includes infinite resources and anti-ban for unbeatable
 
 
 
